@@ -1,4 +1,4 @@
-![Typing SVG](https://readme-typing-svg.herokuapp.com/?lines=𝗧𝗛𝗜𝗦+𝗜𝗦+JUNED'S+𝐁𝐎𝐓!;𝗖𝗕𝗥𝗘𝗔𝗧𝗘𝗗+𝗕𝗬+JUNNED+JUNED.MOKHASHI;𝗔+𝗣𝗢𝗪𝗘𝗥𝗙𝗨𝗟𝗟+𝗔𝗨𝗧𝗢𝗙𝗜𝗟𝗧𝗘𝗥+𝗕𝗢𝗧!+BY+JUNED!)</p>
+![Typing SVG](https://readme-typing-svg.herokuapp.com/?lines=𝗧𝗛𝗜𝗦+𝗜𝗦+JUNED'S+𝐁𝐎𝐓!;𝗖𝗥𝗘𝗔𝗧𝗘𝗗+𝗕𝗬+JUNED.MOKHASHI;𝗔+𝗣𝗢𝗪𝗘𝗥𝗙𝗨𝗟𝗟+𝗔𝗨𝗧𝗢𝗙𝗜𝗟𝗧𝗘𝗥+𝗕𝗢𝗧!+CODED+BY+JUNED!)</p>
 <p align="center">
 
 <h1 align="center">
